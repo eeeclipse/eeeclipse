@@ -1,4 +1,4 @@
-# Hi there, I'm Jihyun 👋
+# Hi there, I'm eeeclipse 👋
 
 **`eeeclipse`** `/ˈiː ɪˈklɪps/` — *triple-e-clip-se*
 
